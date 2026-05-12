@@ -1,4 +1,4 @@
-#  
+#  Experience steal the brainrot base like never before with steal the brainrot base Script ultimate, the #1 Script. Includes invisibility and infinite
 
 
 
